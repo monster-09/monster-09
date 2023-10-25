@@ -24,7 +24,7 @@ Feel free to explore my repositories for more projects and contributions!
 
 #### 📫 Let's Connect
 
-- 💬 LinkedIn: http://www.linkedin.com/in/sravani-samayam-bb3b64247  
+- 💬 LinkedIn: http://www.linkedin.com/in/sravani-samayam  
 - 📧 Email: sravanisamayam09@gmail.com
 
 #### 🌈 Fun Facts
